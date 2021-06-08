@@ -4,9 +4,7 @@ I'm currently sitting in high school grade 11, am pursuing my dream career to st
 
 🌴 Based in South Tangerang, Indonesia
 
-🥙🍔🌮🍕🥗🍙🧆 I eat and love EVERY FOOD
-
-👩🏼‍💻🧠Basic science girl
+🥙🍔🌮🍕🥗🍙🧆 FoodIes
 
 🙋 Team 2004 | 🐕 Doggo fan
 
